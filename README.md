@@ -1,4 +1,4 @@
--👋 Hi, I’m @Nourgh01
+-👋 Hi, I’m @Nour Gharsallah
 
 👀 I’m interested in sharing cultural stories, self-motivation, and travel destinations.
 🌱 I’m currently studying Management of Hospitality and Tourism at IHEC Carthage and pursuing heritage studies. I'm also part of the Erasmus program at BTU Cottbus-Senftenberg, Germany.
